@@ -6,6 +6,28 @@
 
 ### Key Points In Top Big Groups of companies, brands and facilities in comodity trading (only start of 1000 chin of thoughts by Aleksei Dolgikh, join the insightfull journey!)
 
+![Rare Earth Materials USA & EU](https://github.com/user-attachments/assets/a51c01e8-7446-4277-a6a7-e02a0a9c3bc4)
+![Rare Earth Materials USA & EU & NATO](https://github.com/user-attachments/assets/52889088-0f0e-4851-bc05-2b293b637f9a)
+![Minerals that USA not 100% import](https://github.com/user-attachments/assets/da670bc0-8960-4c9c-9c17-5c4cce136708)
+![VULNERABILITY China supply to USA](https://github.com/user-attachments/assets/df6fb54a-b051-4463-a52d-7f2b5fb1b765)
+![COBALT Net Import of USA](https://github.com/user-attachments/assets/1b40ddcd-de60-4313-921b-205aa4b2a90e)
+![GERMANIUM net import USA](https://github.com/user-attachments/assets/b6ffb073-a15a-4bc1-8d73-91dd35d5d062)
+![ANTIMONY net import USA](https://github.com/user-attachments/assets/02b28d4f-5613-4de3-8619-a2dfaa8fd3f6)
+![RARE EARTH net import USA](https://github.com/user-attachments/assets/f12a6be6-8c75-4c4e-84b3-88af0ef7d1ef)
+![RARE EARTH Dominance net import USA](https://github.com/user-attachments/assets/f598634d-f4a0-4fbf-ac3c-3bee4f9fee45)
+![GRAPHITE net import USA](https://github.com/user-attachments/assets/f7fac5ac-55f2-460c-8531-a3183d353c79)
+![GALIUM net import USA](https://github.com/user-attachments/assets/a703c1f2-02d0-42e5-acaf-835036ee58e9)
+
+
+GALIUM used in DRAM "MEMORY CHIPS"
+![DRAM Market Share by revenue](https://github.com/user-attachments/assets/a5a216c7-8453-4aee-9e76-974eb7320a37)
+
+OSS software for MEMORY CHIPS
+![RISC-V SPONSORS of OSS DRAM](https://github.com/user-attachments/assets/1054fff8-95b5-432d-b2bd-19efa2d31a2a)
+
+
+
+
 ### Key Points
 - Research suggests the top brands and groups in global commodity trading include major trading companies like Vitol, Glencore, and Cargill, and logistics firms like Maersk and DHL.
 - It seems likely that key facilities include ports like Shanghai and Singapore, and exchanges like CME Group and ICE, with banks like Goldman Sachs and Citigroup financing trades.
